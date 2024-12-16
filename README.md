@@ -1,2 +1,2 @@
 # hello_world
-test
+Thrilled for this journey 🤗
